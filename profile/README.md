@@ -1,8 +1,8 @@
-# Hi About
+# Hi About ✨
 
 ## Hi there 👋
 
-### Hi work on
+### Hi work on 🌱
 <!--
 
 **Here are some ideas to get you started:**
