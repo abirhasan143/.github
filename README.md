@@ -1,6 +1,8 @@
-# .github
+# [About me]
 
-https://x.com/asabirhasanaman?t=GQb52rGftUCDhRNHb_kZ9w&s=09
+## .github
+
+### AS143YOU-OP
 
 DISCLAIMER💯 : This channel does not promotes any illegal content, all contents provided by this channel is meant for educational purpose only. Thank you for the support
 
